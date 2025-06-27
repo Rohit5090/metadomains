@@ -14,8 +14,8 @@ MetaDomains Labs aims to tokenize legacy domain names (.com, .in, etc.) into NFT
 
 ## Contact
 
-- Telegram: @CryptoRajput007
-- Twitter: @rjrajput_crypto
+- Telegram: @exxxmusk
+- Twitter: @xyzcryp
 
 ---
 
